@@ -1,6 +1,6 @@
 ## Hi there 👋, I'm Kashan Khan Ghori :boy:
 
-###### You can call me KKG, 
+###### You can call me KKG
 
 ***🌱--:black_small_square:I’m currently learning PHP Laravel :v:*** 
 
