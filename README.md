@@ -4,7 +4,7 @@
 
 ***🌱--:black_small_square:I’m currently learning PHP Laravel :v:*** 
 
-***🔭--:black_small_square:I’m currently working on CMS Blog system using custom php :star:***
+***🔭--:black_small_square:Project:  :star:***
 
 ***👯--:black_small_square:I’m looking to collaborate on new technologies and also to learn some new skills :exclamation:***
 
