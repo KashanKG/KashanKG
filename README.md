@@ -1,18 +1,18 @@
 ## Hi there 👋, I'm Kashan Khan Ghori :boy:
 
-###### You can call me KKG
+###### You can call me KKG or Zoro Daddy
 
-***🌱--:black_small_square:I’m currently learning PHP Laravel :v:*** 
+***🌱--:black_small_square: I’m currently learning PHP Laravel :v:*** 
 
-***🔭--:black_small_square:Project:  :star:***
+***🔭--:black_small_square: Project:  :star:***
 
-***👯--:black_small_square:I’m looking to collaborate on new technologies and also to learn some new skills :exclamation:***
+***👯--:black_small_square: I’m looking to collaborate on new technologies and also to learn some new skills :exclamation:***
 
-***🤔--:black_small_square:I’m looking for help with PHP Laravel :grinning:***
+***🤔--:black_small_square: I’m looking for help with PHP Laravel :grinning:***
 
-***💬--:black_small_square:Ask me anything related to Macbook Pro issues and Coding & Development and New Technologies Trend :boom:***
+***💬--:black_small_square: Ask me anything related to Macbook Pro issues and Coding & Development and New Technologies Trend :boom:***
 
-***⚡--:black_small_square:Fun fact: I still eat kinderjoy :pill:***
+***⚡--:black_small_square: Fun fact: I still eat kinder joy with 71 :pill:***
 
 **📫--:black_small_square:How to reach me: ghorik2615@gmail.com or say hi :wave: on insta @kashan_kg**
 
