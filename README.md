@@ -14,7 +14,7 @@
 
 ***⚡--:black_small_square: Fun fact: I still eat kinder joy with 71 :pill:***
 
-**📫--:black_small_square:How to reach me: ghorik2615@gmail.com or say hi :wave: on insta @kashan_kg**
+**📫--:black_small_square:How to reach me: ghorik2615@gmail.com or say hi :wave: on insta @kashan_kg or 🔔 sc: kashan.kg** 
 
 ## **My Github Stats**
 
